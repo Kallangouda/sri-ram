@@ -1,6 +1,6 @@
 # ram-ji
 
-#### &nbsp; Visit site :arrow_upper_right: : &nbsp; [Click ME !!!](https://kallangouda.github.io/Rating-Card-Reactions/)
+#### &nbsp; Visit site :arrow_upper_right: : &nbsp; [Click ME !!!](https://kallangouda.github.io/sri-ram/)
 
 # Jai Shree Ram Project
 
